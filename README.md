@@ -12,4 +12,3 @@ Your essential resource for mastering accounting and bookkeeping fundamentals, o
 - **For All Levels:** Whether you're a beginner or experienced professional, find valuable insights here.
 - **Strategic Growth:** Drive growth and success through strategic financial management.
 - **Short and Simple:** Concise explanations and resources to navigate financial complexities.
-- **Welcome Aboard:** Join us on the journey to mastering accounting and bookkeeping concepts.
